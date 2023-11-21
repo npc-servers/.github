@@ -1,4 +1,4 @@
-![npcz-logo](https://i.imgur.com/VIgoNP7.png))
+![npcz-logo](https://i.imgur.com/VIgoNP7.png)
 
 
 <h1 align="center">CONTACT US</h1>
